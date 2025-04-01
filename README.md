@@ -1,0 +1,1 @@
+# Wzornictwo-Galnateria-Damska-i-M-ska
